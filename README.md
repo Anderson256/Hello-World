@@ -1,2 +1,3 @@
 # Hello-World
 just another repository
+I am an Analysts the in trading the financial market and i have interest for teacnology and learning the blockchain development. Still learning my way into the system and i would love to be part of something great, building and working with a team all over the world is something i would love to get deep in, so anyone reading this and wanting a new head in the system can as well hit me up. i am not a tech guru but developing my skills around the tech system would be a great achievement for me. please do not hesitate to hit me if you find my hunger for success appealing, thanks. 
